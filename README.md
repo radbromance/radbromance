@@ -1,17 +1,27 @@
-# ꕀ﹒　 info　 ![alt text](https://files.catbox.moe/s17f3t.gif)
-**I recommend you read my rentry/links for main details**　 .　 .　 .
+7 minutes in heaven - is all that i need when i get with him !!
 ***
-![heythere](https://files.catbox.moe/wte1sr.gif)　︵　hi, my name's **Bri / Alex**, I use he/they, xeno/neo or all pronouns. I use many names and pronouns.
+<div align=center><img src="https://github.com/user-attachments/assets/0477f400-ae72-4927-b3b5-2b73002be384" alt="Sample Image" width="400" height="300"></div>
+<div align=center>︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶</div>
+<div align=center>Bri ノ Alex ༚ he/they & pup/sun</div>
+<div align=center>#1 brilex fan&shipper ༚ fictkin</div>
+<div align=center>queer && transneumasc</div>
+<div align=center>︶︶︶︶ fictkin list ︶︶︶︶</div>
+<div align=center>★ Brian Thomas / Hoody (MH)</div>
+<div align=center>★ Alex Kralie (MH)</div>
+<div align=center>☆ Skully (MH)</div>
+<div align=center>★ C!Tommy Innit (DSMP)</div>
+<div align=center>☆ C!Wilbur+bursonas (DSMP)</div>
 
-　　　✦　♩ 　Fictionkin　:　MK (lmk), ***Brian (MH), Alex (MH),*** **c!Tommy (DSMP),** c!Dream (DSMP), c!Wilbur & Bursonas (DSMP&more), etc
-
-　　　　　　(note: I do **NOT** support Dream and Wilbur. I find comfort in their ***CHARACTERS***.)
-
-![heythere](https://files.catbox.moe/jxvsua.gif)　︵　ask to friend, I block **freely**. If theres something I don't like, I may block you.
-
-　　　✦　♩ 　I'm mainly with my friends CD & Rain, otherwise i'm alone.
-
-![heythere](https://files.catbox.moe/tbm63m.gif)　︵　I ***HATE*** eyestrain skins. I will cover/hide you if you use one. They're painful.
 ***
 
-This is a wip because I don't know what else to put.
+
+
+<div align=center>Bri ノ Brian ノ Alex ノ Tommy ノ "Skully"</div>
+
+***
+
+<div align=center>⦻</div>
+
+***
+
+<div align=right>7 minutes in heaven - i hope by the end im not a virgin :3c</div>
